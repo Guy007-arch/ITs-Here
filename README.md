@@ -1,3 +1,3 @@
 # ITs-Here
 Pun is intended
-ttps://join.slack.com/t/gm-get-c/shared_invite/zt-dc4yod3b-nrkR267~_kmksxpV5fdY2g
+https://join.slack.com/t/gm-get-c/shared_invite/zt-dc4yod3b-nrkR267~_kmksxpV5fdY2g
